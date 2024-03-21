@@ -6,8 +6,8 @@
 1. 오늘 점심으로 저는 **참치오트밀죽**을 만들어먹었답니다~ 
 
 2. 🎧 오늘의 추천 곡 🎧 
-<br> <p align="center">[I like you](https://youtu.be/4lkaL5z-dLk?si=ul7NiyFbd8Sy1Ldd)
-<br>
+<br> <p align="center">[I like you](https://youtu.be/4lkaL5z-dLk?si=ul7NiyFbd8Sy1Ldd)</p>
+<p align="center">
 <img src="https://www.rollingstone.com/wp-content/uploads/2022/07/post-malone-doja-cat-i-like-you-1800.jpg" width = 70%></img></p>
 
 ### 🎒 외출 시에 꼭 챙기는 물건은?
